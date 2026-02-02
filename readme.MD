@@ -1,3 +1,5 @@
+![Terror attack ](/TerrorAttacksPumpandDumpSLN.JPG)
+
 June 1 , 2025 - 15 Jews attacked and burned , 1 Jewish woman ( Holocaust Survivor ) , Karen Diamond deceased .
 
 July 4 , 2025 - 27 innocent young women murdered and raped from cloud seeding structural failure , attack .
@@ -41,8 +43,8 @@ October 13 , 2025 - CFPB Complaint submitted
 <br>
 <br>
 
-![Unreported investigation / terror attack ](/documents/StGavinandStPhilomenaChurchMonetLaunderingSexTrafficking.JPG)
+![Terror attack ](/documents/StGavinandStPhilomenaChurchMonetLaunderingSexTrafficking.JPG)
 
 <br>
 
-![Unreported investigation / terror attack ](/documents/BourtziCastle27murderedRapedCampMysticRelaxingDay.JPG)
+![Terror attack ](/documents/BourtziCastle27murderedRapedCampMysticRelaxingDay.JPG)
